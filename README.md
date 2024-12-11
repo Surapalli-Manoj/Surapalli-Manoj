@@ -2,7 +2,7 @@
 - 👀 I'm a student at St.Mary's Group Of Institutions
 - 🌱 I’m a passinate learner on "WEB DEVELOPMENT"
 - 💞️ I’m looking to collaborate with more real-time projects  
-- 📫 I'm available on many social medi platforms.You can reach me at manojsurapalli1016@gmail.com
+- 📫 I'm available on many social media platforms.You can reach me at manojsurapalli1016@gmail.com
 - ⚡ Fun fact:Expertise
   
 
